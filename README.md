@@ -1,1 +1,1 @@
-# luccxcx.github.io
+Im trying to make a cool website
